@@ -1,0 +1,1 @@
+# Pro-Assignment-157-Comics-World-Stage-1-Creating-Thumbnails
